@@ -1,0 +1,6 @@
+------------------------------------------------------
+- Kauã Gomes Barbosa Pereira                         -
+- Luiza Granha Falcão                                -
+- Tiago Guilherme Lima de Sousa                      - 
+- Bianka Silva Amidani                               -
+-------------------------------------------------------
